@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sheiishori
+- 👋 Hi, I’m @Sheishori
 - 👀 I’m interested in digital art and video games
 - 🌱 I’m currently learning Web Development
 - 📫 How to reach me sheishori@gmail.com
